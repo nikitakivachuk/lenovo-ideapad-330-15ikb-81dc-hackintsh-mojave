@@ -1,0 +1,1 @@
+# lenovo-ideapad-330-15ikb-81dc-hackintsh-mojave
